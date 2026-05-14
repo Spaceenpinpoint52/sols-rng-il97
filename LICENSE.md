@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with sol's rng Scripts ultimate, the #1 Script. Includes auto-collect and speed for unbeatable performance.
 
 
 
